@@ -1,1 +1,1 @@
-Every assignment and sample questions I've solved in the course
+Every assignment and sample question I've solved in the course
